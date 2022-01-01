@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mohammed6688
+- 👋 Hi, I’m Mohammed Ashraf
 - 👀 I’m interested in video games, football, problem solving
 - 🌱 I’m currently learning how to servive in coding world
 - 💞️ I’m looking to collaborate on any big project 

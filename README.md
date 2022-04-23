@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **mohammed.ashraf.fahmy@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1geQyF9Mpu1FGuxSTxVdngSlc7wXMFnX_/view?usp=sharing](https://drive.google.com/file/d/1geQyF9Mpu1FGuxSTxVdngSlc7wXMFnX_/view?usp=sharing)
+- 📄 Know about my experiences [MY CV](https://drive.google.com/file/d/1geQyF9Mpu1FGuxSTxVdngSlc7wXMFnX_/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
